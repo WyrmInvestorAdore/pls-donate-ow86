@@ -1,4 +1,4 @@
-#  
+#  Experience pls donate like never before with ultimate pls donate Script, the #1 Script. Includes teleport and god mode for unbeatable performance.
 
 
 
